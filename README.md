@@ -1,8 +1,9 @@
 <img width="1280" height="968" alt="tumblr_6011793a68442bde8635a1018b77397a_46a366df_1280" src="https://github.com/user-attachments/assets/d131484a-b7ab-4028-9280-86596aaa1e15" />
 
 
+<p align="center">
 # <sup> $\color{#CBC289}{\textsf{NONSHARING ROOK YUMESHIPPER}}$
-
+</p> 
 
 <p align="center">
 <img width="2048" height="2048" alt="tumblr_72253ff2a0fc8a472a0cdbf4fa4ff8df_a19e928d_2048" src="https://github.com/user-attachments/assets/40c1ddd2-c9fc-472d-8992-4eb729e27a72" />
